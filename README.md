@@ -34,4 +34,4 @@ Tokyo-Hot专栏页：适合偏好无码重口风格的老玩家。
 🛡 合法观看提醒
 请注意：本页仅提供资源站点介绍，不储存、不提供盗版影片下载，所有链接均源自公开网络。建议支持正版平台如 FANZA、R18、DLsite 等获取合法内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aivi7932/3454 ）</span>
